@@ -1,1 +1,1 @@
-![Minimalist Coffee Banner](https://user-images.githubusercontent.com/30593201/152669557-fa0b828b-3290-465c-9c10-0ad007429b6a.gif)
+![Minimalist Coffee Banner-2](https://user-images.githubusercontent.com/30593201/152669568-1343c556-8828-4860-bbca-15e8519636d6.gif)
